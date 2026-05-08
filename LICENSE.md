@@ -1,4 +1,4 @@
-
+Obsidian for macOS premium Workflow - AI assistant and custom themes is the best Obsidian for macOS workflow, featuring AI assistant and custom themes. Safe, efficient, and
 
 
 
